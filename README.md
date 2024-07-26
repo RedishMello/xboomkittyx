@@ -1,8 +1,8 @@
-- 👋 Hi, I’m @xboomkittyx
+- 👋 Hi, I’m @RedishMello
 - 👀 I’m interested in VR Gorilla Tag
 - 🌱 I’m currently learning Coding and making mods and thumbnail
 - 💞️ I’m looking to collaborate with jman elliot skeledadvr ijmanvr vmt and k8
 - 📫 How to reach me Dm me on discord https://discord.gg/uK4JNnTtZT
 - 😄 Pronouns: He/Him
 - ⚡ poops cutly in your lungs
-- 👀 Also im making a comp team name XOXO
+- 👀 Also im making a comp team name MM Monke Monke
